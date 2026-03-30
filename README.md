@@ -54,8 +54,8 @@ I am currently in the learning phase, focused on gaining hands-on experience thr
 ---
 
 ## 📡 Contact
-- Email: your-email@example.com  
-- GitHub: https://github.com/your-username  
+- Email: lissokoomer@gmail.com  
+- GitHub: https://github.com/OMERKODDy/K_OdDyssey  
 
 ---
 
